@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Halish Richard J.
+# 👋 Hi, I'm Halish Richard J
 
 🎓 Final Year CSE Student | 🤖 AI/ML Developer | 🌐 Web Developer | 🚀 Tech Explorer | 🎤 Workshop Mentor  
 📍 Thanjavur, Tamil Nadu, India
